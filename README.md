@@ -11,13 +11,13 @@ April - June
 
 Quarter 3 
 July - September
-## Availability: Yes
+## Availability: No
 
 Quarter 4
 October - December
 ## Availability: Yes
 
-Please provide an email or a way to contact you. Best contact: deepd@benetech.org
+Please provide an email or a way to contact you. Best contact: jameybay@hotmail.com
 
 Also, please provide a link to your LinkedIn or other online resume. Thanks!
-### Link to LinkedIn: http://www.linkedin.com/in/shantanudeepdatta
+### Link to LinkedIn: 
